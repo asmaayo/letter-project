@@ -1,2 +1,2 @@
 # letter-project
-"i hope you read this, even if it's too late."
+"I hope you liked my gift to you, although its not much I put my effort into it <\3."
